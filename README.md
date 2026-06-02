@@ -1,1 +1,0 @@
-# jejakkaryaku-tkislamannida-b1
